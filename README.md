@@ -1,7 +1,7 @@
 - 👋 Hello World(s?)... 👋
 - I’m currently pursuing an A.S. in Engineering at Chabot College with the goal of transfering. 
 - I’m looking to collaborate on ANYTHING!!!
-- 📫 How to reach me bigricky510@gmail.com 
+- 📫 How to reach me rickymartinezamador@gmail.com 
 
 
 <!---
